@@ -65,9 +65,6 @@ pu0BVuwLSuorfYTF //Gbzz
 5My/cSHlrg7Ju0vX //Arce
 /Bda6cQLUpHEE6bx //Snikee
 7cerlUUgGOamkHcu //zodiack
-+7cerlUUgGOamkHcu //zodiack
-+7CERLUUGGOAMKHCU //zodiack_large
-7CERLUUGGOAMKHCU //zodiack_large
 Qtlti9t7itJkuMAV //Lion
 PzUB0toTH0Uf1WFv //Scarfac312
 7UKw5iMSS6X71AP8 //MarcosPrey
